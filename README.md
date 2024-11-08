@@ -15,3 +15,4 @@
 ![alt text](<Captura de pantalla 2024-11-07 194748.png>)
 
 ## TRELLO
+https://trello.com/invite/b/672cc57eb1b60440bbae0304/ATTI005b6a4dafb2a1a08609a255d16fafdd1CC4E98F/appalimentossaludables
